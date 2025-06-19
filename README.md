@@ -143,3 +143,6 @@
 - 15.3 Ladder of Liberation: Industry → Information → Intelligence
 - 15.4 Why Utopia Fails: Endless Distributional Conflict
 - 15.5 The Hidden Benevolence of Global Competition
+
+
+This version is a pre-distribution draft. Authored by Zhangwei, 2025/06. It contains original theoretical content currently under review. Please do not circulate or cite without permission.
